@@ -1,4 +1,4 @@
-# My Ex Thinks I'm A Billioaire
+# My Ex Thinks I'm A Billionaire
 
 **$DELULU** — a meme coin on Solana, launched on pump.fun via [forks.wiki](https://forks.wiki).
 
